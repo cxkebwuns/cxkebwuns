@@ -1,9 +1,9 @@
 
 
-# <p align="center"> ****🌺 Welcome! 🌺****</p>
+# <p align="center"> ****🍒 Welcome! 🍒****</p>
 
 
-# <p align="center"> ![stygianuserbox](https://github.com/user-attachments/assets/fc6d7c9f-c2f7-425d-afbe-947636f1d1eb)</p>
+# <p align="center"> ![giphy](https://github.com/user-attachments/assets/02efda44-615b-4a63-bd5b-b9ea5817a1cb)</p>
 
 
 # <p align="center"> ****📢 BEFORE YOU INTERACT / INFO! 📢****</p>
@@ -15,11 +15,12 @@
 - **I'm a very chill guy and very motherly, as most people I've met said. But don't be fooled, I can be hella freaky if I want to, unless you're uncomfortable with that, then please do inform me!**
 
 
-# <p align="center"> ****💊 INTERESTS 💊****</p>
+# <p align="center"> ****👾 INTERESTS 👾****</p>
 
 
 # <p align="center"> ****📼 ANIMES 📼****</p>
 
+- **Jojo's Bizarre Adventures**
 - **One Piece**
 - **Skip And Loafer**
 - **Dungeon Meshi**
@@ -109,14 +110,18 @@
 
 
 
-# <p align="center"> ****LOVE CURLYA! <3****</p>
+# <p align="center"> ![3923_Jojo_Menacing2](https://github.com/user-attachments/assets/204355e6-ae1a-49c1-84cf-ab7333dd0e00) ****Rohan Kishibe My Beloved****![3923_Jojo_Menacing2](https://github.com/user-attachments/assets/204355e6-ae1a-49c1-84cf-ab7333dd0e00)</p>
 
-![Curlya](https://github.com/user-attachments/assets/bffe9bff-5275-4579-aa00-abd44028d6c8)
+
+
+# <p align="center"> ![Rohan Kishibe](https://github.com/user-attachments/assets/b2f7c8ef-93f0-4861-a392-f93773232261) </p>
+
+
 
 # <p align="center"> ****Goodbye!****</p>
 
-# <p align="center"> ![mouthwashing-daisuke-dance](https://github.com/user-attachments/assets/17b500e3-fecd-45e0-9965-4ece20feffe7)</p> <p align="center"> Teehee lil' dancing Daisuke.</p>
+# <p align="center"> ![giphy (1)](https://github.com/user-attachments/assets/af4312b5-6f41-40db-b055-1ac8196379ca) </p> <p align="center"> Just a little guy...</p>
 
 ## <p align="center"> ****...?****</p>
 
-[Hehe](https://www.youtube.com/watch?v=xIOg_K6Z1fg&ab_channel=JAKO)
+# <p align="center"> [Hehe](https://www.youtube.com/watch?v=xIOg_K6Z1fg&ab_channel=JAKO)</p>
