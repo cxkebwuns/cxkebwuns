@@ -13,7 +13,7 @@
 - **I will not hesitate to hide or block you if it comes to it.**
 - **I'm okay with discussing any topic in general.**
 - **I'm a very chill guy and very motherly, as most people I've met said. But don't be fooled, I can be hella freaky if I want to, unless you're uncomfortable with that, then please do inform me!**
-- [Currently favorite song:](https://github.com/user-attachments/files/27575146/King.of.Anything.-.Sara.Bareilles.with.lyrics.mp3) "King Of Anything." By Sara Bareilles.
+- [Current favorite song:](https://github.com/user-attachments/files/27575146/King.of.Anything.-.Sara.Bareilles.with.lyrics.mp3) "King Of Anything." By Sara Bareilles.
 
 
 # <p align="center"> ****👾 INTERESTS 👾****</p>
